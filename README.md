@@ -1,1 +1,0 @@
-# nameisa.github.io
